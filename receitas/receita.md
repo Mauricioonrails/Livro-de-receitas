@@ -10,7 +10,7 @@
 - 1 pitada de pimenta
 - 2 colheres (sopa) de ketchup
 - 2 colheres (sopa) de mostarda
-- 1 caixinha de  Creme de Leite
+- 1 caixinha de creme de Leite
 
 ### Modo de Preparo
 
@@ -18,6 +18,6 @@
 
 2. Adicione o frango, refogue até que esteja dourado e tempere com sal e pimenta. 
 
-3. Misture o ketchup, a mostarda e o NESTLÉ Creme de Leite ao frango e deixe cozinhar por alguns minutos. 
+3. Misture o ketchup, a mostarda e o creme de Leite ao frango e deixe cozinhar por alguns minutos. 
 
 4. Sirva.
